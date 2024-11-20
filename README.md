@@ -6,11 +6,11 @@
   <em> Draw on my ugly little strawpage..! (<a href="https://1-900-490-freak.straw.page/">x</a>) <br> <br> 
   <img  width="50" src="https://web.archive.org/web/20090727160436/http://www.geocities.com/dr_tigger/smoking-skull.gif" /> <br>
   🌙 / sleep = AFK, offtab <br> 
-  🚫 = In class, working <br> 
+  🚫 = In class, working
   </em>
     <details>
-<b>Skins I have</b> Oneyplays, Smiling Friend, Dan VS, Rockafire Explosion, BR BA + BCS, Trailer Park Boys, Ren & Stimpy, Treasure Island (1988), Clone High, DHMIS, TF2, The Beatles, SOAD <br>
-<b>Locations</b> spawn or docks
+<b>Locations</b> spawn or docks   <br>
+<b>Skins I have</b> Oneyplays, Smiling Friend, Dan VS, Rockafire Explosion, BR BA + BCS, Trailer Park Boys, Ren & Stimpy, Treasure Island (1988), Clone High, DHMIS, TF2, The Beatles, SOAD 
     </details>
 </p>
 
