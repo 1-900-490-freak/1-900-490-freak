@@ -9,7 +9,8 @@
   🚫 = In class, working <br> 
   </em>
     <details>
-Skins I have skins: OCs, Oneyplays, Smiling Friend, Dan VS, Rockafire Explosion, BR BA + BCS, Trailer Park Boys, Ren & Stimpy, Treasure Island (1988), Clone High, DHMIS, TF2, The Beatles, SOAD
+<b>Skins I have</b> Oneyplays, Smiling Friend, Dan VS, Rockafire Explosion, BR BA + BCS, Trailer Park Boys, Ren & Stimpy, Treasure Island (1988), Clone High, DHMIS, TF2, The Beatles, SOAD <br>
+<b>Locations</b> spawn or docks
     </details>
 </p>
 
