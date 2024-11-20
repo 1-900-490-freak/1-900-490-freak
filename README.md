@@ -1,8 +1,8 @@
-<img height="26" width="73" src="https://web.archive.org/web/20091027060957/http://www.geocities.com/phnyxrayn/weedmexplore.gif">
+<img src="https://web.archive.org/web/20091027060957/http://www.geocities.com/phnyxrayn/weedmexplore.gif">
 <p align="center">                             
   <img width="139" src="https://web.archive.org/web/20090728115814/http://uk.geocities.com/therealchongybaby/spacebg.gif" /> <br /> <br /> 
   <em>Draw on my ugly little strawpage..! (<a href="https://1-900-490-freak.straw.page/">x</a>) <br /> <br /> 
-  <img height="49" width="50" src="https://web.archive.org/web/20090727160436/http://www.geocities.com/dr_tigger/smoking-skull.gif" /> <br />
+  <img src="https://web.archive.org/web/20090727160436/http://www.geocities.com/dr_tigger/smoking-skull.gif" /> <br />
   <em>🌙 = AFK / offtab probably</em> <br /> 
   <em>🚫 = In class, working</em>
 </p>
