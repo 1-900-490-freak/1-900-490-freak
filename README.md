@@ -9,7 +9,7 @@
   🚫 = In class, working <br>
 <img  width="15" src="https://web.archive.org/web/20091026232923/http://www.geocities.com/Tokyo/Market/7773/star.gif" /> <br>
     <details>
-Locations: spawn or docks <br>
+Locations: spawn, docks, bakery <br>
 Skins I have: Oneyplays, Smiling Friend, Dan VS, Rockafire Explosion, <br>BR BA + BCS, Trailer Park Boys, Ren & Stimpy, Treasure Island (1988), <br> Clone High, DHMIS, TF2, The Beatles, SOAD, Frank Zappa
     </details>
 </h6>
