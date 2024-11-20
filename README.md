@@ -10,7 +10,7 @@
   </em>
     <details>
 <b>Locations</b> spawn or docks   <br>
-<b>Skins I have</b> Oneyplays, Smiling Friend, Dan VS, Rockafire Explosion, BR BA + BCS, Trailer Park Boys, Ren & Stimpy, Treasure Island (1988), Clone High, DHMIS, TF2, The Beatles, SOAD 
+<b>Skins I have</b> Oneyplays, Smiling Friend, Dan VS, Rockafire Explosion, BR BA + BCS, Trailer Park Boys, Ren & Stimpy, Treasure Island (1988), Clone High, DHMIS, TF2, The Beatles, SOAD, Frank Zappa
     </details>
 </p>
 
