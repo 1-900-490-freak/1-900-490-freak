@@ -11,8 +11,8 @@ Draw on my ugly little strawpage..! (<a href="https://1-900-490-freak.straw.page
 <img  width="50" src="https://web.archive.org/web/20090727160436/http://www.geocities.com/dr_tigger/smoking-skull.gif" /> <br>
 Sleep = AFK, offtab <br>
 W2i !!! I'm usually on for a pretty short time but I love talking to you guys <br>
-I also like to just eavesdrop and judge people's profiles
-<br> <br>
+I also like to just eavesdrop and judge people's profiles (I pray for the chronically online, I hope you guys get better /gen) <br> 
+<br>
 
 <img  width="15" src="https://web.archive.org/web/20091026232923/http://www.geocities.com/Tokyo/Market/7773/star.gif" />  
 <details>
