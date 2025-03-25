@@ -7,7 +7,7 @@
   <img  width="50" src="https://web.archive.org/web/20090727160436/http://www.geocities.com/dr_tigger/smoking-skull.gif" /> <br>
   Sleep / 🌙 = AFK, offtab <br> 
   🚫 = In class, working <br> 
-  w2i if I am ignoring you (might have public chat disabled)<br> <br>
+  w2i !!! if I am ignoring you<br> <br>
 <img  width="15" src="https://web.archive.org/web/20091026232923/http://www.geocities.com/Tokyo/Market/7773/star.gif" /> <br>
     <details>
       --- <br>
