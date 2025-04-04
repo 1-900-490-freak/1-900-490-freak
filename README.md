@@ -11,7 +11,7 @@ Draw on my ugly little strawpage..! (<a href="https://1-900-490-freak.straw.page
 <img  width="50" src="https://web.archive.org/web/20090727160436/http://www.geocities.com/dr_tigger/smoking-skull.gif" /> <br>
 <img  width="15" src="https://web.archive.org/web/20091028091023/http://www.geocities.com/greenngoldsg/images/anistar.gif" /> W2i !!! I'm usually on for a pretty short time but I love talking to you guys <br>
 I like to just eavesdrop and judge people's profiles <br> 
-Femboys of ponytown: if you see this, please hide me LOL I don't wanna see you<br>
+Femboys of ponytown: if you see this, please hide me LOL<br>
 <br>
 
 <img  width="15" src="https://web.archive.org/web/20091026232923/http://www.geocities.com/Tokyo/Market/7773/star.gif" />  
