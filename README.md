@@ -1,17 +1,17 @@
 <img width="80" src="https://web.archive.org/web/20091027060957/http://www.geocities.com/phnyxrayn/weedmexplore.gif">
 
 <h6 align="center">                         
-<img  width="500" height="100" src="https://web.archive.org/web/20090728115814/http://uk.geocities.com/therealchongybaby/spacebg.gif" /> <br>
+<img  width="600" height="100" src="https://web.archive.org/web/20090728115814/http://uk.geocities.com/therealchongybaby/spacebg.gif" /> <br>
 <br>
 
 <em> Dane/19yrs/Switzerland  
-Draw on my ugly little strawpage..! (<a href="https://1-900-490-freak.straw.page/">x</a>) (I think they're broken at the moment so DON'T!!) <br>
+Draw on my ugly little strawpage..! (<a href="https://1-900-490-freak.straw.page/">x</a>) (I think it's broken at the moment so DON'T!!) <br>
 <br> 
 
 <img  width="50" src="https://web.archive.org/web/20090727160436/http://www.geocities.com/dr_tigger/smoking-skull.gif" /> <br>
-Sleep = AFK, offtab <br>
-W2i !!! I'm usually on for a pretty short time but I love talking to you guys <br>
-I also like to just eavesdrop and judge people's profiles (I pray for the chronically online, I hope you guys get better /gen) <br> 
+<img  width="15" src="https://web.archive.org/web/20091028091023/http://www.geocities.com/greenngoldsg/images/anistar.gif" /> W2i !!! I'm usually on for a pretty short time but I love talking to you guys <br>
+I like to just eavesdrop and judge people's profiles <br> 
+Femboys of ponytown: if you see this, please hide me LOL I don't wanna see you<br>
 <br>
 
 <img  width="15" src="https://web.archive.org/web/20091026232923/http://www.geocities.com/Tokyo/Market/7773/star.gif" />  
