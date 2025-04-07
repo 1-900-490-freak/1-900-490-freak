@@ -11,6 +11,7 @@
 <img  width="50" src="https://web.archive.org/web/20090727160436/http://www.geocities.com/dr_tigger/smoking-skull.gif" /> <br>
 I like to just eavesdrop and judge people's profiles <br> 
 Femboys of ponytown: if you read this, hide/block me <br>
+STOP PUTTING BOOBS ON YOUR PONIES <br>
 <br>
 
 <img  width="15" src="https://web.archive.org/web/20091026232923/http://www.geocities.com/Tokyo/Market/7773/star.gif" />  
