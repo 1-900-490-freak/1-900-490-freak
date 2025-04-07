@@ -4,14 +4,13 @@
 <img  width="600" height="100" src="https://web.archive.org/web/20090728115814/http://uk.geocities.com/therealchongybaby/spacebg.gif" /> <br>
 <br>
 
-<em> Dane/19yrs/Switzerland  
-Draw on my ugly little strawpage..! (<a href="https://1-900-490-freak.straw.page/">x</a>) <br>
+<em> Dane/19yrs/Switzerland|<a href="https://1-900-490-freak.straw.page/">strawpage</a> <br>
+<img  width="15" src="https://web.archive.org/web/20091028091023/http://www.geocities.com/greenngoldsg/images/anistar.gif" /> I'm usually on for a pretty short time and offtab but I love chatting <br>
 <br> 
-
+<br> 
 <img  width="50" src="https://web.archive.org/web/20090727160436/http://www.geocities.com/dr_tigger/smoking-skull.gif" /> <br>
-<img  width="15" src="https://web.archive.org/web/20091028091023/http://www.geocities.com/greenngoldsg/images/anistar.gif" /> I'm usually on for a pretty short time and offtab but I love talking to you guys so w2i if you must <br>
 I like to just eavesdrop and judge people's profiles <br> 
-Femboys of ponytown: if you see this, please hide/block me LOL<br>
+Femboys of ponytown: if you read this, hide/block me <br>
 <br>
 
 <img  width="15" src="https://web.archive.org/web/20091026232923/http://www.geocities.com/Tokyo/Market/7773/star.gif" />  
