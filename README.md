@@ -5,7 +5,7 @@
 <br>
 
 <em> Dane/19yrs/Switzerland  
-Draw on my ugly little strawpage..! (<a href="https://1-900-490-freak.straw.page/">x</a>) (I think it's broken at the moment so DON'T!!) <br>
+Draw on my ugly little strawpage..! (<a href="https://1-900-490-freak.straw.page/">x</a>) <br>
 <br> 
 
 <img  width="50" src="https://web.archive.org/web/20090727160436/http://www.geocities.com/dr_tigger/smoking-skull.gif" /> <br>
