@@ -1,10 +1,9 @@
 <img width="80" src="https://web.archive.org/web/20091027060957/http://www.geocities.com/phnyxrayn/weedmexplore.gif">
-
-<h6 align="center">                         
+          
 <img  width="600" height="100" src="https://web.archive.org/web/20090728115814/http://uk.geocities.com/therealchongybaby/spacebg.gif" /> <br>
 <br>
 
-<em> Dane/19yrs/Switzerland|<a href="https://1-900-490-freak.straw.page/">strawpage</a> <br>
+<em> Dane / 19yrs / Switzerland / <a href="https://1-900-490-freak.straw.page/">strawpage</a> <br>
 <img  width="15" src="https://web.archive.org/web/20091028091023/http://www.geocities.com/greenngoldsg/images/anistar.gif" /> I'm usually on for a pretty short time and offtab but I love chatting <br>
 <br> 
 <br> 
