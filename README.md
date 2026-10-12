@@ -8,7 +8,6 @@
 <br> 
 <br> 
 <img  width="50" src="https://web.archive.org/web/20090727160436/http://www.geocities.com/dr_tigger/smoking-skull.gif" /> <br> 
-Femboys of ponytown: if you read this, hide/block me <br>
 STOP PUTTING BOOBS ON YOUR PONIES <br>
 <br>
 
